@@ -1,4 +1,4 @@
-
+advanced Script for steal the brainrot base is the best steal the brainrot base Script, featuring speed and anti-ban. Safe and powerful for all your
 
 
 
